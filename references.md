@@ -1,1 +1,0 @@
-eto c resume-me
